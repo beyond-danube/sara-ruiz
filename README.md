@@ -1,5 +1,3 @@
-# Sara Ruiz
-
 ## Date: November 10, 2023
 
 Dear Diary,
