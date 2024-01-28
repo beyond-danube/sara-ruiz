@@ -1,4 +1,4 @@
-**Date: January 28, 2024**
+## Date: January 28, 2024
 
 Dear Diary,
 
